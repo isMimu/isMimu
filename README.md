@@ -1,4 +1,4 @@
-## Smol pink Floof, Reporting for duty! o7
+## Smol Pink Floof, Reporting for duty! o7
 ##### Why are you here tho?
 
 *--WAIT...why are am I here..?*
